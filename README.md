@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cybersecurity
 - 🌱 I’m currently learning DevSecOps
 - 💞️ I’m looking to collaborate on brain crunching 
-- 📫 How to reach me ... comb01-550402020@student.mmust.ac.ke
+- 📫 How to reach me ... napatajoshua254@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Time is expensive
 
